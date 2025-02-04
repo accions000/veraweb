@@ -1,4 +1,4 @@
-xcadfsfsdfdfddfvsffdd# VeraDemo - Blab-a-Gag
+sffdd# VeraDemo - Blab-a-Gag
 
 ## About
 
